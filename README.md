@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **AI/ML/DL**
 
-- 📫 How to reach me **ritam.pradhan2001@gmail.com**
+- 📫 How to reach me **ritam.pradhan2002@gmail.com**
 
 - ⚡ Fun fact **I think i'm cracked**
 
